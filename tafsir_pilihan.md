@@ -1,0 +1,3 @@
+> **al-fatihah:7** (yaitu) Jalan orang-orang yang telah Engkau beri nikmat kepada mereka; bukan (jalan) mereka yang dimurkai dan bukan (pula jalan) mereka yang sesat.
+> yaitu jalan orang-orang yang telah engkau beri nikmat kepadanya berupa keimanan, hidayah, dan rida-Mu.
+> **an-nisa:69** 1) para Nabi yang telah dipilih oleh Allah untuk memperoleh bimbingan sekaligu ditugasi untuk menuntun manusia menuju kebenaran ilahi, 2) shiddiqin yaitu orang-orang yang selalu benar dan jujur, tidak ternodai oleh kebatilan, tidak pula mengambil sikap yang bertentangan dengan kebenaran, 3) syuhada yaitu mereka yang bersaksi
